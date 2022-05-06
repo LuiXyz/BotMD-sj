@@ -2,7 +2,7 @@
 <img src="https://telegra.ph/file/4637101da58e21976363b.jpg" alt="AhmdLuiï¿½" width="300" />
 
 </p>
-<h1 align="center">versi fix eror dari sc bot md gweh</h1>
+<h1 align="center">Jika ada yg eror fix sendiri yh :b</h1>
 
 <h1 align="center">Jangan lupa kasih stars & follow :)</h1>
 
